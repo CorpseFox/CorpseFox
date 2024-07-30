@@ -1,6 +1,8 @@
 ![image](https://stuffineed.carrd.co/assets/images/image06.png?v=ccd269a4)
 ### *Hello* !! ^_^ welcome 2 my _*GitHub*_ ![pixel1](https://pixels.crd.co/assets/images/gallery33/352b57c7.gif?v=7212058b)
 > [!CAUTION]
+> *best veiwed on laptop like most of my sites* ***!!***
+>
 > ![pixel2](https://stuffineed.carrd.co/assets/images/gallery09/b8b0c7ee.gif?v=44d26511)+ 𖦹ɞ ˚. ⊹  **R**en ![and3](https://stuffineed.carrd.co/assets/images/gallery09/fdfc02c3.gif?v=44d26511) <sub>**Rowen**</sub> **《** **He - him - Gore** ***!!*** **》** ![pixel4](https://stuffineed.carrd.co/assets/images/gallery09/61282ff1.gif?v=44d26511) ***!!*** **5**TEEN ***!!*** ![PIXEL6](https://stuffineed.carrd.co/assets/images/gallery09/4715c9be.gif?v=44d26511)
 > 
 > ![button](https://stuffineed.carrd.co/assets/images/gallery09/d8e29a16.gif?v=3127e222) ![button](https://i.postimg.cc/SsZZRFVy/IMG-4797.gif) ![button](https://stuffineed.carrd.co/assets/images/gallery09/2cc3599d.png?v=0f9ab54f)
@@ -14,12 +16,10 @@
 >
 >
 >
->![CD](https://gifs.crd.co/assets/images/gallery08/a12db6b0.gif?v=ef433a6f)[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9k1p585lhqwnrgqh2jmya54fb&cover_image=true&theme=novatorem&show_offline=true&background_color=ff0000&interchange=false&bar_color=cc0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)  ![cd2](https://gifs.crd.co/assets/images/gallery21/33f7fc0a.gif?v=ef433a6f) Currently listening 2 ***!!***
->
->
->
-><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&pause=1000&color=F72D24&background=FFB3AA00&random=true&width=600&height=57&lines=Thank+you+4+reading+%09(o_+_)%EF%BE%89%E5%BD%A1%E2%98%86" alt="Typing SVG" /></a>
->
->![hhrg](https://stuffineed.carrd.co/assets/images/image08.jpg?v=abb9f611)
-> 
+![CD](https://gifs.crd.co/assets/images/gallery08/a12db6b0.gif?v=ef433a6f)[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9k1p585lhqwnrgqh2jmya54fb&cover_image=true&theme=novatorem&show_offline=true&background_color=ff0000&interchange=false&bar_color=cc0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)  ![cd2](https://gifs.crd.co/assets/images/gallery21/33f7fc0a.gif?v=ef433a6f) Currently listening 2 ***!!***
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&pause=1000&color=F72D24&background=FFB3AA00&random=true&width=600&height=57&lines=Thank+you+4+reading+%09(o_+_)%EF%BE%89%E5%BD%A1%E2%98%86" alt="Typing SVG" /></a>
+
+![hhrg](https://stuffineed.carrd.co/assets/images/image08.jpg?v=abb9f611)
+
 ![banner](https://dividers.crd.co/assets/images/gallery05/b38abdfe.png?v=05d33f91)![banner](https://dividers.crd.co/assets/images/gallery05/b38abdfe.png?v=05d33f91)
