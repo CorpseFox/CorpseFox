@@ -13,7 +13,6 @@
 > 
 ![banner](https://dividers.crd.co/assets/images/gallery05/b38abdfe.png?v=05d33f91)![banner](https://dividers.crd.co/assets/images/gallery05/b38abdfe.png?v=05d33f91)
 
-![gorb](https://stuffineed.carrd.co/assets/images/image08.jpg?v=abb9f611)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9k1p585lhqwnrgqh2jmya54fb&cover_image=true&theme=novatorem&show_offline=true&background_color=ff0000&interchange=false&bar_color=cc0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-
-![hbe](https://stuffineed.carrd.co/assets/images/gallery12/72c7af1b.gif?v=abb9f611)
+![](https://komarev.com/ghpvc/https://github.com/CorpseFox&color=c91200&style=plastic)
