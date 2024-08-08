@@ -16,7 +16,6 @@
 >
 >
 >
-![CD](https://gifs.crd.co/assets/images/gallery08/a12db6b0.gif?v=ef433a6f)[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9k1p585lhqwnrgqh2jmya54fb&cover_image=true&theme=novatorem&show_offline=true&background_color=ff0000&interchange=false&bar_color=cc0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)  ![cd2](https://gifs.crd.co/assets/images/gallery21/33f7fc0a.gif?v=ef433a6f) Currently listening 2 ***!!***
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&pause=1000&color=F72D24&background=FFB3AA00&random=true&width=600&height=57&lines=Thank+you+4+reading+%09(o_+_)%EF%BE%89%E5%BD%A1%E2%98%86" alt="Typing SVG" /></a>
 
